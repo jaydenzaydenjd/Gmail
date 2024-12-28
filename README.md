@@ -23,7 +23,6 @@
 ![image](https://github.com/jaydenzaydenjd/Gmail/assets/169983666/cb8ad813-0fa1-4281-a6ef-55a165ae212e)
 
 
-**推荐一个虚拟信用卡开卡平台**，包含香港、美国万事达VISA等多种卡头，0月费使用门槛极低，微信支付宝均可开通使用。支持开通各类海外平台：ChatGPT、Netflix等。点击查看详情：[https://www.fomepay.com/](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
 
 ### 4. 设置应用专用密码
 
